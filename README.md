@@ -1,3 +1,3 @@
 # jericasucks 
-this is my only attempt dumb shit
+this is my only attempt dumb shit <br/>
 jerica u know u suck
